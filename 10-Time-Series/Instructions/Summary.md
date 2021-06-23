@@ -1,0 +1,3 @@
+#Summary
+
+Depending on who and why they were using this data would determine how strongly one should make a decision to invest in the yen or not. For speculative investors the volatility can be of value and can net gains but for businesses or indiviauls that are paying for goods or services in the yen. The volatility as well as the the low precisions numbers makes it a bad investment to make as the cost of those goods or services relative to other currency is too varied and hard to predict. 
